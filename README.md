@@ -1,2 +1,3 @@
 # hello-world
-my first екн
+my first try
+учусь я , учусь) громко не ругаться :)
